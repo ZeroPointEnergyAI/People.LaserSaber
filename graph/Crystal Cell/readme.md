@@ -1,1 +1,2 @@
 - [12V Crystal Cell Update + Alternative Construction Method](https://youtu.be/QZ0oCND23S4)
+- [100 Year Motor Crystal Cell + EZ Spin Combo](https://youtu.be/-mfKMDE55gs)
